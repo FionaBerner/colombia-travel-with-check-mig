@@ -1,4 +1,4 @@
-# 👨‍👩‍👧 Traveling to Colombia With Kids
+# 👪🏽 Traveling to Colombia With Kids
 
 Colombia is a family‑friendly destination with diverse landscapes, cultural experiences, and activities suitable for children of all ages. With proper planning, families can enjoy a safe and enriching trip.
 
